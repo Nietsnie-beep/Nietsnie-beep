@@ -1,6 +1,5 @@
 # Nietsnie Alberto Perez Cruz
 
-![Nietsnie%20Alberto%20Perez%20Cruz%20f486228015c8414e921f841474c9990c/Group_73.png](Nietsnie%20Alberto%20Perez%20Cruz%20f486228015c8414e921f841474c9990c/Group_73.png)
 
 ## About Me
 
