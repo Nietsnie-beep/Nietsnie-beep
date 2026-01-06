@@ -1,7 +1,3 @@
-# Untitled
-
----
-
 # 👨‍💻 Nietsnie Alberto Pérez Cruz
 
 ## About Me
